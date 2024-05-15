@@ -1,2 +1,4 @@
 # ROXYCONSULTING-AFRICA
-ROXY Consulting Africa aspire to be the backbone and foundation of youth and women lead small and medium business to advise, train strategically, technically and operationally to multiply their revenue
+ROXY Consulting Africa aspire to be the backbone and foundation of youth and women lead small and medium business to advise, train strategically, technically and operationally to multiply their revenue.
+stands as a company encompassing various services and products specializing in management & Leadership, Information technology training, Marketing, Project management, Accounting, Audit and  Deal advisory services. Our overarching mission is to enhance the value of business ventures through a tailored and personalized approach. Roxy's expertise spans from management advisory and audit to branding and marketing services, with a primary focus on empowering companies and women & youth-led initiatives. We are dedicated to building the capacities of those lacking in management, leadership, accounting, and deal advisory and marketing management aspects.![Uploading image.png…]()
+
